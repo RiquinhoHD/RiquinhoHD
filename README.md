@@ -1,4 +1,4 @@
-* oi, meu nome é *RiquinhoHD*- 👋 hi, my name is RiquinhoHD
+* oi, meu nome é *Eduardo*- 👋 hi, my name is Eduardo
  
 * tenho interesse em edição de videos- 👀 I'm interested in video editing
  
@@ -6,7 +6,7 @@
 
 * procuro colaborar com a sociedade sendo uma boa pessoa- 💞️ I try to collaborate with society by being a good person
  
-* você pode me procurar pelo email **riquinhocraftht@gmail.com** - 📫 you can look for me by email riquinhocraftht@gmail.com
+* você pode me procurar pelo email **riquinhocraftht@gmail.com** - 📫 you can look for me by email riquinhocraftht@gmail.
  
 * estudo no colegio arlindo carvalho de amorim ✨ study at Arlindo Carvalho de Amorim school.
 
